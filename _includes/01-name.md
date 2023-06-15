@@ -1,2 +1,2 @@
 # Mohammad Alamin
-## Fullstack Engineer (Trainee) 
+## Fullstack Engineer Graduate
