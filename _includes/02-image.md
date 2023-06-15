@@ -1,1 +1,1 @@
-![software engineer tools](https://e7.pngegg.com/pngimages/127/393/png-clipart-software-engineer-computer-software-software-development-web-developer-engineer-software-engineer-computer-software.png)
+![software engineer tools](https://cutshort.io/blog/wp-content/uploads/2018/04/bd1e5c2457278a37313c55ce8c887aa3.jpg)
